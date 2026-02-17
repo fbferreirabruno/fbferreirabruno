@@ -6,8 +6,8 @@ I thrive in collaborative, remote-first environments and have worked with teams 
 
 ---
 
-🌐 [linkedin.com/in/brunoferreiradc](https://www.linkedin.com/in/brunoferreiradc)  
-📧 srbrunoferreira@outlook.com  
+🌐 [linkedin.com/in/fbferreirabruno](https://www.linkedin.com/in/fbferreirabruno)  
+📧 fbferreirabruno@gmail.com  
 📱 +5581989163234  
 
 ---
